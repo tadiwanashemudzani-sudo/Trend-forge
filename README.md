@@ -1,0 +1,2 @@
+# Trend-forge
+AI POWERED SOCIAL VIDEO
